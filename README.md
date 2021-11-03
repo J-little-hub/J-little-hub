@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @J-little-hub
+- 👀 I’m interested in tennis
+- 🌱 I’m currently learning electrical skills
+- 💞️ I’m looking to collaborate on master
+- 📫 How to reach me, never
